@@ -1,0 +1,4 @@
+# tugas_2
+Tugas Pertambahan Dua Angka
+DEKY RAHMAN 2110010220
+5A REGULAR PAGI BJM
